@@ -1,6 +1,6 @@
 # Happy Birthday Adrija! 
 
-Your words have inspired many people, your actions have moved even more! You truly are an exemplary person. One that I am truly proud to call mine. Happy birthday!
+Your words have inspired many people, your actions have moved even more! You truly are an exemplary person. Happy birthday!
 
 
 
